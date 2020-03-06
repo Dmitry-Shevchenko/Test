@@ -1,4 +1,4 @@
-Book of RA - najbardziej zyskowny zwycięski program w BOOK of RA
-Uzupełnij saldo 10 $, nie bierz premii, w przeciwnym razie nie będziesz mógł wypłacić pieniędzy. Przejdź do gry BOOK RA. Gramy według tego algorytmu:
+Book of RA - najbardziej zyskowny zwycieski program w BOOK of RA
+Uzupelnij saldo 10 $, nie bierz premii, w przeciwnym razie nie bedziesz mogl wyplacic pieniedzy. Przejdz do gry BOOK RA. Gramy wedlug tego algorytmu:
 
-Linie 9, obrót 9: 4. Wiersze 6, obrót o 12: 3. Linie 7, obrót 49: 4. Jeśli zrobisz to dobrze, możesz uzyskać około 1000 USD. Jeśli nie rozumiesz, jak postawić konieczny zakład, liczbę linii lub coś innego, przejdź do gry, a stanie się jasne, jak wygrać w księdze Ra. A ponieważ tak się nie dzieje, lepiej w ogóle tego nie robić! Nie jestem nianią, aby wyjaśnić wszystkim podstawy.
+Linie 9, obrot 9: 4. Wiersze 6, obrot o 12: 3. Linie 7, obrot 49: 4. Jesli zrobisz to dobrze, mozesz uzyskac okolo 1000 USD. Jesli nie rozumiesz, jak postawic konieczny zaklad, liczbe linii lub cos innego, przejdz do gry, a stanie sie jasne, jak wygrac w ksiedze Ra. A poniewaz tak sie nie dzieje, lepiej w ogole tego nie robic! Nie jestem niania, aby wyjasnic wszystkim podstawy.
