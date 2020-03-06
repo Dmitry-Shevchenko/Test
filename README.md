@@ -1,4 +1,8 @@
-The Book of RA is the most profitable winning program in the Book of Ra.
-Refill your balance with $ 10, don’t take the bonus, you won’t be able to withdraw money later. Go to the game Book of Ra. We play by this algorithm:
+Book of RA to najbardziej dochodowy program wygrywający w Book of Ra.
+Uzupełnij saldo o 10 USD, nie bierz premii, później nie będziesz mógł 
+wypłacić pieniędzy. Przejdź do gry Book of Ra. Gramy według tego algorytmu:
 
-Lines 9, turn 9: 4. Lines 6, turn 12: 3. Lines 7, turn 49: 4. If you do everything right, you can get about $ 1,000. If you do not understand how to make the necessary bet, the number of lines or something else, go into the game and it will become clear how to win in the book of Ra. And since this does not happen, it’s better not to do it at all! I am not a nanny to explain the basics to everyone.
+Linie 9, kolej 9: 4. Linie 6, kolej 12: 3. Linie 7, kolej 49: 4. 
+Jeśli zrobisz wszystko dobrze, możesz dostać około 1000 dolarów. 
+Jeśli nie rozumiesz, jak postawić konieczny zakład, liczbę linii lub coś innego, 
+przejdź do gry, a stanie się jasne, jak wygrać w księdze Ra. A jeśli tak się nie stanie, lepiej w ogóle tego nie robić!
