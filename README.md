@@ -1,13 +1,4 @@
-!!!!!!!!!!!!------------!!!!!!!!!!!!
-1. Book of RA – самая прибыльная схема
-Схемы выигрыша в BOOK OF RA
+Book of RA - najbardziej zyskowny zwycięski program w BOOK of RA
+Uzupełnij saldo 10 $, nie bierz premii, w przeciwnym razie nie będziesz mógł wypłacić pieniędzy. Przejdź do gry BOOK RA. Gramy według tego algorytmu:
 
-Работает только в официальном Вулкане – Перейти на сайт
-Пополнить баланс на 275 рублей, бонус не брать, иначе нельзя будет вывести деньги сразу
-Зайти в игру BOOK OF RA
-Играем по такому алгоритму:
-
-✅ Линий 9, ставка 9: 4 вращения
-✅ Линий 6, ставка 12: 3 вращения
-✅ Линий 7, ставка 49: 4 вращения
-Может получиться примерно 17 тысяч рублей при правильном выполнении. Не задавайте пожалуйста глупых вопросов в комментариях. Если не понимаете, как поставить нужную ставку, количество линий или что-то еще, то зайдите в игру и все станет понятно, как выиграть в book of ra. А коль даже так не доходит, то лучше не делайте вообще! Я не нянька, чтобы каждому объяснять основы.
+✅ Linie 9, obrót 9: 4. ✅ Wiersze 6, obrót o 12: 3. ✅ Linie 7, obrót 49: 4. Jeśli zrobisz to dobrze, możesz uzyskać około 1000 USD. Jeśli nie rozumiesz, jak postawić konieczny zakład, liczbę linii lub coś innego, przejdź do gry, a stanie się jasne, jak wygrać w księdze Ra. A ponieważ tak się nie dzieje, lepiej w ogóle tego nie robić! Nie jestem nianią, aby wyjaśnić wszystkim podstawy.
