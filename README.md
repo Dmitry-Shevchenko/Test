@@ -1,8 +1,12 @@
-Book of RA to najbardziej dochodowy program wygrywający w Book of Ra.
-Uzupełnij saldo o 10 USD, nie bierz premii, później nie będziesz mógł 
-wypłacić pieniędzy. Przejdź do gry Book of Ra. Gramy według tego algorytmu:
+Zalecana kwota doładowania: 10-15 dolarów
 
-Linie 9, kolej 9: 4. Linie 6, kolej 12: 3. Linie 7, kolej 49: 4. 
-Jeśli zrobisz wszystko dobrze, możesz dostać około 1000 dolarów. 
-Jeśli nie rozumiesz, jak postawić konieczny zakład, liczbę linii lub coś innego, 
-przejdź do gry, a stanie się jasne, jak wygrać w księdze Ra. A jeśli tak się nie stanie, lepiej w ogóle tego nie robić!
+Algorytm ustalania stawek:
+
+Linia 4 - Bet / Linia 3 - 1 raz
+Linia 4 - Bet / Linia 4 - 6 razy z rzędu
+Linia 2 - zakład / linia 20 - 2 razy z rzędu
+Linia 8 - Zakład / Linia 10 - 4 razy z rzędu
+
+Złap wygraną, powtórz w kółko, ale nie więcej niż 1000 $. Pod koniec programu powinna wygrać pozytywna wygrana lub 10 darmowych spinów.
+
+Nie zapominaj, że pod koniec dnia wkładamy pieniądze na wypłatę i pozostawiamy w bilansie 100 $ na następny dzień. Jeśli zgubisz się w schemacie, zacznij od 1 kroku.
