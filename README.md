@@ -1,8 +1,15 @@
-Uzupełniamy saldo o około 15 USD.
-Zagraj w ten sposób w Book Of Dead:
+Pamiętaj, że wykresy są aktualizowane codziennie!
 
-✅ Linie 6, zakład 4: 10 razy spin
-✅ Linie 3, zakład 5: 6 razy spin
-✅ Linie 8, zakład 4: 6 razy spin
-✅ Linie 9, zakład 15: 9 razy spin
-Jeśli się zgubisz, zrób to jeszcze raz. Jeśli przed końcem osiągniesz zysk w wysokości 500 $, my również to zrobimy w pierwszej kolejności. Crazy Monkey zawsze była grą o wysokich osiągach. Jednak małpa może albo napełnić go sercem, albo podnieść, więc lepiej trzymać się tej strategii, wtedy szanse, że „makak pociągnie linę i zrzuci ciasto”, będą bliskie 99%.
+Znaleźliśmy nowy obwód!
+Wykorzystaj!
+1 - kwota uzupełnienia: 10 dolarów amerykańskich;
+2 - 90% przejezdności programu;
+3 - wygrane: 50 $ na krąg;
+4 - obwód działa na MOBILNY;
+5 - wejdź do gry „Fire Joker”.
+
+Algorytm licytacji dla nowego schematu w kasynie Volcano:
+Postaw 1 $ - 3 razy.
+1,5 $ Zakład - 2 razy.
+Postaw 2 $ - 2 razy.
+Złap zwycięstwo.
