@@ -1,5 +1,5 @@
 Uzupełniamy saldo o około 15 USD.
-Zagraj w ten sposób w CRAZY MONKEY:
+Zagraj w ten sposób w Book Of Dead:
 
 ✅ Linie 6, zakład 4: 10 razy spin
 ✅ Linie 3, zakład 5: 6 razy spin
