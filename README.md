@@ -1,8 +1,8 @@
-Hello Player!
-You are in the territory of this licensed casino!
-It has never been so exciting to spend time.
-Everyone has a chance to win, as well as a chance to lose!
+Cześć gracz!
+Znajdujesz się w tym licencjonowanym kasynie!
+Nigdy nie było tak ciekawie spędzać czas.
+Każdy ma szansę wygrać, a także szansę na przegraną!
 
-Only you decide whether luck accompanies you or not!
+Tylko ty decydujesz - zwycięstwo lub tchórz!
 
-Happy Spins Player!
+Gracz, dobre obroty!
